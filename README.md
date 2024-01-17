@@ -1,5 +1,5 @@
-### Hola Crayola 🐵
-> No se que poner
+# > No matter where life takes me, find me with a smile
+## Me gustan los viajes en el tiempo :hourglass:, Mac Miller :swimmer:, y Kanye West :bear:
 <!--
 **EddVargs8/EddVargs8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![image](https://user-images.githubusercontent.com/124846765/217970182-a78af232-bf2d-4350-a50e-e628c99550d6.jpg)
+
+🌱 I’m currently learning HTML, CSS Y JS
