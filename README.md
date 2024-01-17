@@ -1,4 +1,4 @@
-# > No matter where life takes me, find me with a smile
+# No matter where life takes me, find me with a smile
 ## Me gustan los viajes en el tiempo :hourglass:, Mac Miller :swimmer:, y Kanye West :bear:
 <!--
 **EddVargs8/EddVargs8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
