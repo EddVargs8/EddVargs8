@@ -1,3 +1,6 @@
+![I hate being bi-polar. It's awesome](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pxfuel.com%2Fen%2Fdesktop-wallpaper-xgyig&psig=AOvVaw1G65JsIBXP8VC0Fr9K1icu&ust=1705643169234000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCOjHj5Ge5oMDFQAAAAAdAAAAABAn)
+
+
 # No matter where life takes me, find me with a smile
 ## Me gustan los viajes en el tiempo :hourglass:, Mac Miller :swimmer:, y Kanye West :bear:
 <!--
